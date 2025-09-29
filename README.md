@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **nandhikasricbe16@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1g2PQKq1etwPBmkvNO7GRbFmS0-aPu2Dg/view](https://drive.google.com/file/d/1g2PQKq1etwPBmkvNO7GRbFmS0-aPu2Dg/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1MfSbr6kplruMXrocXoCKE8MCZajKGXeu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
